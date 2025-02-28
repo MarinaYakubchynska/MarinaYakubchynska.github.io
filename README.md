@@ -1,1 +1,1 @@
-# http-MarinaYakubchynska.github.io
+# MarinaYakubchynska.github.io
